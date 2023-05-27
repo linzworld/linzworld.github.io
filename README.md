@@ -1,1 +1,0 @@
-# linzworld.github.io
